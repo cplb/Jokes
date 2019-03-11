@@ -45,7 +45,7 @@ A mouse coming back from on holiday.
 Sir.
 
 
-## How do you know there are three elephants in your fridge?
+### How do you know there are three elephants in your fridge?
 
 The door won't shut.
 
