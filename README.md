@@ -87,7 +87,7 @@ Skydiving elephants.
 
 ### Why are elephants big, grey and wrinkly?
 
-BEcause if they were small, white and smooth they would be table-tennis balls.
+Because if they were small, white and smooth they would be table-tennis balls.
 
 
 ### What's grey, has eight legs and two trunks?
