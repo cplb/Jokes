@@ -67,7 +67,7 @@ To avoid falling into the mug of hot chocolate.
 
 ### How do you tell if there's an elephant in your office.
 
-By thier business card.
+By their business card.
 
 
 ### What do you call an elephant with a machine gun wearing pink earmuffs?
